@@ -1,4 +1,4 @@
-# Total hour spent: 8.3hrs
+# Journal
 
 ## 17 September 2026 - 1 hr
 ### Schematic
